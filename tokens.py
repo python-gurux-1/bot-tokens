@@ -13,3 +13,5 @@ Mubinahon: 5414868479:AAHPxZHBOx8gOqNitRhsOkmIpZQvZn7Wn5o
 
   
 Ikromiddin: 5306619798:AAHsgMxh6rpx0Bvdkyjxz61Xt2SA4Pm1Zuo
+
+  Bekzod: 5454916812:AAHCjRyroNtN10RPL9qdC5Il-UEbID0cVfo
